@@ -2,9 +2,13 @@ Hihiiiii I'm Atlas :]
 
 I'm very super shy and flustered easily so please keep this in mind 😓
 
-can guarantee, once I trust you enough, youre getting your ears yapped off with random stuff, Im a terrible oversharer hehehee 
+can guarantee, once I trust you enough, youre getting your ears yapped off with random stuff !! Im a terrible oversharer hehehee teeheeeee heheeeesss
 
-Mostly offtab / away on ponytown so usually W2I if you want to get my attention
+uhh i have many typing quirks so please do tell me if you need me 2 clarify something im silly imsillyyyy
+
+Mostly offtab / away on ponytown so usually W2I if you want 2 get my attention
+
+im probably the LEAST nonchalant person youlleverrrrr everrr meet im super super very chalant im so chalant sochalant
 
 -----------------------------------------
 
